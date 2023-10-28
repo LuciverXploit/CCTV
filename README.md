@@ -2,9 +2,6 @@
 Script hack Cctv Mantan Kamu😆
 # SCRENSHOT
 
-<img src="https://github.com/LuciverXploit/Luci_Cctv/Screenshot_2023-10-26-12-15-36-47_40deb401b9ffe8e1df2f1cc5ba480b12.jpg">
-<img src="https://github.com/LuciverXploit/Luci_Cctv/Screenshot_2023-10-26-21-12-37-12_84d3000e3f4017145260f7618db1d683.jpg">
-<img src="https://github.com/LuciverXploit/Luci_Cctv/Screenshot_2023-10-26-21-12-51-83_84d3000e3f4017145260f7618db1d683.jpg">
 <a href="https://www.top4top.me/" target="_blank" title="https://www.top4top.me/"><img src="https://www.top4top.me/do.php?imgf=top4top_med340b60ddfa11.jpg" border="0" alt="https://www.top4top.me/do.php?imgf=top4top_med340b60ddfa11.jpg" /></a>
 
 # LUCIVERCCTV
